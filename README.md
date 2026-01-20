@@ -1,2 +1,2 @@
-# Sujith-Ganeshuni
+# Sujith Ganeshuni
 Who I Am
